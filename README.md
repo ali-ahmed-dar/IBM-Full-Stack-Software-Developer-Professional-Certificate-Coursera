@@ -17,6 +17,6 @@
 ## How to get Access
 This course is available at the coursera website for $50 per month over a period of 2 months. Get it here for almost nothing as compared to that. Select your purchase plan and send me a screenshot on my [Telegram](https://web.telegram.org/k/#@dembe_zuma_143) 
 ### Partial access
-[Buy me 3 coffees](https://buymeacoffee.com/dar.k) to have any 4 modules of your own choice
+[Buy me 5 coffees](https://buymeacoffee.com/dar.k) to have any 3 modules of your own choice
 ### Full course | Bugdet deal
-Or [buy me 10 coffees](https://buymeacoffee.com/dar.k) to get access to the whole course
+Or [buy me 15 coffees](https://buymeacoffee.com/dar.k) to get access to the whole course
